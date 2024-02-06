@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... ask me
 - 📫 How to reach me ... ask me
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ... funny gay always a smile
+- ⚡ Fun fact: ... funny.always a smile 
 
 <!---
 Shadoow808/Shadoow808 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
